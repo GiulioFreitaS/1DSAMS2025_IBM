@@ -1,1 +1,1 @@
-Todas as experiências e atividades junto a IBM
+Todas as experiências e atividades juntas a IBM
